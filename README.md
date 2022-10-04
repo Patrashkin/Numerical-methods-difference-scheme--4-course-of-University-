@@ -1,1 +1,0 @@
-# Numerical-methods-difference-scheme-4-course-of-University-
